@@ -1,2 +1,1 @@
-# mikePower
-este es un repositorio de lo k me venga en gana3
+este me canzo y puse un nuevo con mas powerrrrr.
